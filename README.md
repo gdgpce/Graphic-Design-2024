@@ -1,1 +1,1 @@
-# Graphic-Design-2024
+This repository is a community-driven space for graphic design enthusiasts to share and showcase their creativity. Each topic posted encourages contributors to submit original designs, ranging from illustrations to logos and more. Whether you're a beginner or a pro, you're welcome to collaborate, learn, and inspire others. Simply pick a topic, create your design, and contribute your work to the repository. Let's grow together and make this a vibrant hub for graphic designers!
